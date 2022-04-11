@@ -81,9 +81,5 @@ https://glovia.club/
 
 
 ## Contributors
-> Swastika Rout
-> Ananya Das
-> Soumava Das
-> Swastik Mishra
+LOOKING FOR INNOVATIVE CONTRIBUTORS
 
-**TEAM VENOM 2.0**
